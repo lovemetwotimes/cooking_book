@@ -9,4 +9,7 @@
 7. orzechy
 8. rodzynki
 
+**Przygotowanie:**
+
 Zmielony po sparzeniu 2-3x mak. Do miseczki dodac cukier i jajko. Zmieszać dobrze! 3 bułeczki zwykłe pokroic w kostki ☐ - zalać gorącym przegotowanym mlekiem z cukrem i roztopionym masłem. Wlać w mak i zmieszać. Smacznego życzy Ciocia Halusia.
+
