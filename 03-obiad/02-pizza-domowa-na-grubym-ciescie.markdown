@@ -1,12 +1,12 @@
 ## Pizza domowa na grubym cieście ##
 
-1. 500g mąki pszennej
-2. 150 ml ciepłego (nie gorącego mleka)
-3. 150 ml wody
-4. 30g drożdży świeżych lub 14g suszonych
-5. 1 łyżeczka cukru
-6. 60 ml oleju
-7. 1 łyżeczka soli
+- 500g mąki pszennej
+- 150 ml ciepłego (nie gorącego mleka)
+- 150 ml wody
+- 30g drożdży świeżych lub 14g suszonych
+- 1 łyżeczka cukru
+- 60 ml oleju
+- 1 łyżeczka soli
 
 **Przygotowanie:**
 

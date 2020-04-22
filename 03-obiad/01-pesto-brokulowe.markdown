@@ -2,15 +2,15 @@
 
 **Składniki na jeden słoik:**
 
-1. 1 brokuł
-2. ⅔ szklanki oliwy z oliwek
-3. 1 szklanka migdałów
-4. 3 – 4 ząbki czosnku
-5. 2 łyżki natki pietruszki
-6. 4 łyżki płatków drożdżowych, do kupienia tutaj  (można pominąć, ale warto je zdobyć)
-7. mały kawałek świeżego chili lub szczypta suszonego
-8. łyżeczka skórki otartej z cytryny
-9. sól i pieprz
+- 1 brokuł
+- ⅔ szklanki oliwy z oliwek
+- 1 szklanka migdałów
+- 3 – 4 ząbki czosnku
+- 2 łyżki natki pietruszki
+- 4 łyżki płatków drożdżowych, do kupienia tutaj  (można pominąć, ale warto je zdobyć)
+- mały kawałek świeżego chili lub szczypta suszonego
+- łyżeczka skórki otartej z cytryny
+- sól i pieprz
 
 **Przygotowanie:**
 

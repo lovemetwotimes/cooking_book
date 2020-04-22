@@ -1,1 +1,1 @@
-# Słodkie #
+# Przekąski i słodkie #

@@ -1,13 +1,13 @@
 ## Makiełki ##
 
-1. 250 g maku
-2. 1/2 szklanki cukru
-3. 1/4 kostki masła
-4. 1 całe jajko
-5. 1 szklanka mleka
-6. 3 bułki zwykłe
-7. orzechy
-8. rodzynki
+-  250 g maku
+-  1/2 szklanki cukru
+-  1/4 kostki masła
+-  1 całe jajko
+-  1 szklanka mleka
+-  3 bułki zwykłe
+-  orzechy
+-  rodzynki
 
 **Przygotowanie:**
 
