@@ -1,32 +1,29 @@
 ## Curry z kalafiorem z cynamonowym ryżem ##
 
-
-* 1 cebula, pokrojona w kostkę
-* 2 łyżeczki tartego imbiru
-* 1 czubata łyżeczka mielonego kuminu
-* 1 łyżeczka mielonej kolendry
-* 4 goździki
-* ½ łyżeczka kurkumy
-* ¼ łyżeczka asofoteitydy, można zastąpić ząbkiem czosnku
-* ¼ łyżeczki cynamonu
-* 2 liście kafiru, można zastąpić odrobiną soku z cytryny
-* olej
-
-
-* 1 kalafior, podzielony na różyczki
-* 1 ziemniak, obrany i pokrojony w kostkę
-* 1 puszka krojonych pomidorów
-* 1 ½ – 2 szklanki wody
-* sól
-
-
-* 2 szklanki ryżu
-* 3 szklanki wody
-* laska cynamonu
-* łyżeczka kurkumy
-* łyżka dobrego oleju
-* sól
-
+* Sos
+    * 1 cebula, pokrojona w kostkę
+    * 2 łyżeczki tartego imbiru
+    * 1 czubata łyżeczka mielonego kuminu
+    * 1 łyżeczka mielonej kolendry
+    * 4 goździki
+    * ½ łyżeczka kurkumy
+    * ¼ łyżeczka asofoteitydy, można zastąpić ząbkiem czosnku
+    * ¼ łyżeczki cynamonu
+    * 2 liście kafiru, można zastąpić odrobiną soku z cytryny
+    * olej
+* Curry
+    * 1 kalafior, podzielony na różyczki
+    * 1 ziemniak, obrany i pokrojony w kostkę
+    * 1 puszka krojonych pomidorów
+    * 1 ½ – 2 szklanki wody
+    * sól
+* Ryż
+    * 2 szklanki ryżu
+    * 3 szklanki wody
+    * laska cynamonu
+    * łyżeczka kurkumy
+    * łyżka dobrego oleju
+    * sól
 
 **Przygotowanie:**
 
