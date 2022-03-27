@@ -37,4 +37,6 @@
 
 - Nie podnosić pokrywki z garnka z ryżem! Dzięki temu ryż będzie sypki, puchaty, miękki i w końcu nic się nie przypali
 
+<div style="page-break-after: always;"></div>
+
 

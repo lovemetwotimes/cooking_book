@@ -15,3 +15,4 @@
 3. Po tym czasie ciasto przełożyć do miski wysmarowanej odrobiną oleju, przykryć czystą ściereczką i odstawić do wyrastania, najlepiej w ciepłe miejsce na około 1 godzinę.
 4. Rozgrzać piekarnik do 200 stopni z termoobiegiem.
 
+<div style="page-break-after: always;"></div>

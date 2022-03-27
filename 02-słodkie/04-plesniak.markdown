@@ -16,3 +16,5 @@
 3. Białka ubijam z pozostałym cukrem, mieszam z mąką ziemniaczaną. Pianę wykładam na ciasto kakaowe.
 4. Całość posypuję jasnym, startym ciastem. Piekę godzinę w 180 st. C.
 
+<div style="page-break-after: always;"></div>
+

@@ -18,3 +18,4 @@
 2. W dużym garnku zagotować wodę ze szczyptą soli. W międzyczasie różyczki brokuła odciąć, a pozostałą łodygę obrać z twardej skórki i pokroić na cienkie plastry. Kiedy woda zacznie się gotować, dodać przygotowanego brokuła i poczekać, aż zagotuje się ponownie – gotować 3 minuty od czasu zawrzenia, następnie delikatnie odcedzić i szybko przelać zimną wodą. Dzięki temu brokuł zachowa swój piękny, zielony kolor.
 3. Tak przygotowanego brokuła dodać do naczynia blendera razem z uprażonymi wcześniej migdałami oraz resztą składników i krótko miksować na pesto. Doprawić do smaku solą i pieprzem, przełożyć do słoika i przechowywać w lodówce do 10 dni. Doskonałe do makaronu, kanapek lub sałatek.
 
+<div style="page-break-after: always;"></div>

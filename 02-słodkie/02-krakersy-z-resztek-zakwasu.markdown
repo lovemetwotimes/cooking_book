@@ -14,3 +14,5 @@
 3. Rozwałkować kawałki ciasta na grubość ok 1.5mm
 4. Pociąć na kwadraciki/trójkąciki itp.
 5. Piec w 190C do uzyskania chrupkości i koloru (ok. 20min)
+
+<div style="page-break-after: always;"></div>
