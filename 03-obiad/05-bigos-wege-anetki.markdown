@@ -13,7 +13,7 @@
 * liście laurowe
 * ziele angielskie
 * kminek
-* szklanka czerwonego wytrwanego wina
+* szklanka czerwonego wytrawnego wina
 * 100ml oleju lnianego
 
 
