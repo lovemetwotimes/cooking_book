@@ -1,4 +1,4 @@
-## Pat thai Fryderyka ##
+## Pat Thai Fryderyka ##
 
 **Dwie porcje:**
 
