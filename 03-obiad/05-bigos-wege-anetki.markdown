@@ -15,7 +15,7 @@
 * kminek
 * szklanka czerwonego wytrawnego wina
 * 100ml oleju lnianego
-* test
+
 
 **Przygotowanie:**
 
