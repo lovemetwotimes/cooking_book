@@ -21,8 +21,8 @@
 - sos sojowy 90ml
 - sos sojowy ciemny 30ml
 - sos rybny 15 ml
-- pasta z tamaryndowca lub sok z limonki 30ml
-- cukier 45g
+- pasta z tamaryndowca dwie łyżki lub sok z limonki 30ml
+- cukier 45g lub więcej gdy za kwaśno
 - woda 250ml
 
 **Przygotowanie:**
