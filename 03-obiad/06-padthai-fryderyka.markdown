@@ -1,6 +1,6 @@
 ## Pat Thai Fryderyka ##
 
-**Dwie porcje:**
+**Składniki na dwie porcje:**
 
 - makaron ryżowy szeroki 200g
 - kurczak/krewetki/tofu/wołowina 300g
